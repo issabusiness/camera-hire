@@ -1,4 +1,4 @@
-camera hire in london can be used for photographing DJ equipment
+#camera hire in london can be used for photographing DJ equipment
 
 LOMO Camera Rental
 LOMO is an independent rental facility offering cutting-edge camera, lighting, and audio equipment at competitive prices. Founded by filmmakers, their mission is to provide filmmakers with access to professional gear without breaking the bank. They boast a comprehensive range of equipment suitable for any creative project, aiming to be a one-stop shop for digital filmmakers and photographers. LOMO offers cameras from top brands like Arri, Canon, Red, Blackmagic, and Sony, along with lighting, monitors, audio equipment, and tripods. Whether you're a seasoned filmmaker or a budding enthusiast, LOMO ensures you're equipped with the tools you need for success.
